@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Shatanira, currently 21.
 - 👀 I’m interested in Tech, Designing and Beautifying things and Creating new ideas.  
 - 🌱 I’m currently studying in College.
-- 💞️ I’m love reading storybooks, singing ang painting.
+- 💞️ I love reading storybooks, singing ang painting.
 - 📫 You can reach me on royshatanira@gmail.com (gmail), and also on https://www.linkedin.com/in/shatanira-roy-b09508243/ (linkedin)
 
 <!---
